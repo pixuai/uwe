@@ -45,7 +45,21 @@ https://www.booking.com/hotel/bg/intercontinental-sofia.bg.html?label=ag_id_1662
 
 Tag 1 - Tagesausflug Sofia City   
 
+https://www.citiesonfoot.com/xyJYgdLoME2/sofia
 
+Kurze Zusammenfassung des Tagesausflugs in Sofia:
+
+
+Alexander-Newski-Kathedrale: Berühmtes Wahrzeichen mit eindrucksvoller Architektur.
+Kirche Sveta Sofia: Namensgeberin der Stadt aus dem 6. Jahrhundert; unterirdische Ausgrabungsstätte mit alten Gräbern.
+Spaziergang durch den Stadtgarten & Nationaltheater „Ivan Vazov“: Kurze Pause im ältesten Park Sofias, lebendige Atmosphäre mit Straßenkünstlern.
+Mittagessen:
+
+
+Nationales Archäologisches Museum: Kompakte Sammlung thrakischer Schätze und mittelalterlicher Artefakte.
+Wandel auf dem Witoscha-Boulevard: Fußgängerzone mit Geschäften, Cafés und Straßenmusikanten.
+
+Abendessen in einem traditionellen bulgarischen Lokal (Mehana) oder in einem der vielen Restaurants entlang des Witoscha-Boulevards.
 
 
 Tag 2 (Trip nach Varna beginnt)
@@ -65,7 +79,6 @@ https://www.booking.com/hotel/bg/paradiso-dreams-aparthotel.bg.html?label=ag_id_
 
 Ankunft (Trakiiski Skali)
 
-Thracian Cliffs, Bulgaria
 
 https://www.booking.com/hotel/bg/thracian-cliffs-golf-resort-spa.bg.html?label=ag_id_166265500036-ufCkwLo1CvyZMNq_Vry6UQS712106686281%3Apl%3Ata%3Ap1%3Ap2%3Aac%3Aap%3Aneg%3Afi%3Atikwd-106820198%3Alp1001454%3Ali%3Adec%3Adm&sid=2156f01a679a6e3a14a7440990737e23&aid=2283208&ucfs=1&checkin=2025-07-26&checkout=2025-08-04&dest_id=-831922&dest_type=city&group_adults=2&no_rooms=1&group_children=1&age=15&req_age=15&srpvid=706e601026d3066b&srepoch=1742391642&matching_block_id=28375812_126714220_0_1_0&atlas_src=sr_iw_title#_
 
