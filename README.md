@@ -3,10 +3,11 @@ Wichtige Infos auf einen Blick:
 Taxi Gesellschaft Sofia:
 
 Yellow taxi Sofia +359 2 9 11 19
+
 O.K. Supertrans +359 2 973 2121
 
 Erste Hilfe + Polizei: 112 
-Strassen Hilfe: +359 87 8999900 / +359 896 508 808 (ruf mich an) 
+Strassenhilfe: +359 87 8999900 / +359 896 508 808 (ruf mich an) 
  
  
 Diese familienfreundliche Reise führt dich in etwa einer Woche durch Bulgariens vielfältige Landschaften. Dein Abenteuer startet in der Hauptstadt Sofia (Tage 1–2), bevor du in den Rila-Bergen beim Resort Borovets (Tage 3–4) eine kleine Verschnaufpause vom Stadttrubel einlegst. Danach geht’s weiter an die Schwarzmeerküste zum historischen Städtchen Nessebar (Tage 5–6). Als krönender Abschluss wartet das malerische Resort Thracian Cliffs in der Nähe von Varna auf dich, wo du dich entspannen und deinen liebsten Cousin besuchen kannst (Tag 7+). Auf dieser Route erlebst du eine Mischung aus Städtetrip, Bergabenteuern, kulturellen Highlights und Strandvergnügen – ideal für Erwachsene und Kinder gleichermaßen.
